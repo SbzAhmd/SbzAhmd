@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **sbzahmd21101@gmail.com**
 
-- ⚡ Fun fact **I think i'm funny😁**
+- ⚡ **Joy in Hussle😁**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
